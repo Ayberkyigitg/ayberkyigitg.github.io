@@ -1,4 +1,1 @@
 # ayberkyigitg.github.io
-
-
-dfgsdfg
